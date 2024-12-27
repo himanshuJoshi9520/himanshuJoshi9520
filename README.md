@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **hjoshi952080@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1I6DPm0p_MqWuQdpaCAGz0QzATqFcyXEj/view](https://drive.google.com/file/d/1I6DPm0p_MqWuQdpaCAGz0QzATqFcyXEj/view)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1I6DPm0p_MqWuQdpaCAGz0QzATqFcyXEj/view](https://drive.google.com/file/d/12nyvR5OWuWBHP7W7eL1O70noHCxwvyLh/view)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
